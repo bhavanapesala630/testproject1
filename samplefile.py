@@ -1,8 +1,2 @@
-qwertyuiopaskl;
-qsdfghjlytresa
-sdkloiuytresz
-juytfdxcvytrdfcbvxarethvguygjcfchbk
-gfzxgrtdyjgkhpo08q3321y123467900niviseytk,bddfhgofsrjypairegiu
-hgdfhgyeruayhdsfgeyuedhcufewhehdc
-fghsfhsfghhjjjkkkkk
-hbgfdeswedrftgyhuygtrfedrftgyh
+uhfdchbghsxdgsh
+dsyuhewnbhfuhusndc
